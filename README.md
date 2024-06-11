@@ -1,0 +1,2 @@
+# Lokurias
+Ideas locas
